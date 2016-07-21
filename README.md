@@ -1,3 +1,3 @@
 # houghton
 shalom olam
-love people
+love all people
